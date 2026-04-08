@@ -312,6 +312,6 @@ MIT License
 
 ---
 
-> 最后更新：2026-04-07
+> 最后更新：2026-04-08 | 🔥 [GoDaily](https://www.993899.com) 已收录 372+ AI 工具
 > 
 > 由 [GoDaily](https://www.993899.com) 整理
