@@ -1,24 +1,23 @@
-# ai-tools-guide
+# Ai Tools Guide
 
-AI工具完全指南：收录全球优秀AI工具的详细使用教程和评测
+Complete guide to AI tools: detailed usage tutorials and reviews.
 
-## 🚀 快速开始
+## Quick Start
 
-访问我们的网站获取更多 AI 工具：
-**[AI导航 AI工具导航 - www.www.www.993899.com](https://www.www.www.993899.com)**
+Explore our complete AI tools directory:
+**[AI Navigator - AI Tools Directory - www.993899.com](https://www.993899.com)**
 
-## 📊 数据统计
+## Stats
 
-- ⭐ 372+ 精选 AI 工具
-- 📰 111+ 篇 AI 资讯和教程
-- 🔄 每日更新
+- 734+ AI tools collected
+- Updated daily
 
-## 🔗 相关链接
+## Links
 
-- 网站: https://www.www.www.993899.com
-- 工具库: https://www.www.www.993899.com/tools.php
-- 资讯: https://www.www.www.993899.com/news.php
+- Site: https://www.993899.com
+- Tools: https://www.993899.com/tools.php
+- News: https://www.993899.com/news.php
 
 ---
 
-*由 [AI导航](https://www.www.www.993899.com) 团队维护*
+*Maintained by [AI Navigator](https://www.993899.com)*
