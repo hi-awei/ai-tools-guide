@@ -5,7 +5,7 @@ AI工具完全指南：收录全球优秀AI工具的详细使用教程和评测
 ## 🚀 快速开始
 
 访问我们的网站获取更多 AI 工具：
-**[AI导航 AI工具导航 - www.www.993899.com](https://www.www.993899.com)**
+**[AI导航 AI工具导航 - www.www.www.993899.com](https://www.www.www.993899.com)**
 
 ## 📊 数据统计
 
@@ -15,10 +15,10 @@ AI工具完全指南：收录全球优秀AI工具的详细使用教程和评测
 
 ## 🔗 相关链接
 
-- 网站: https://www.www.993899.com
-- 工具库: https://www.www.993899.com/tools.php
-- 资讯: https://www.www.993899.com/news.php
+- 网站: https://www.www.www.993899.com
+- 工具库: https://www.www.www.993899.com/tools.php
+- 资讯: https://www.www.www.993899.com/news.php
 
 ---
 
-*由 [AI导航](https://www.www.993899.com) 团队维护*
+*由 [AI导航](https://www.www.www.993899.com) 团队维护*
